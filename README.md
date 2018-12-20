@@ -39,6 +39,10 @@ Eastman PCH3系列
 其实真的没什么好推荐的，只有Eastman和雅依利在众多国产品牌中，出现的很早的。相比于原生国产品牌，在技术层面更应该信任Eastman和雅依利。这么说吧，麦杰克大家都知道吧，雅依利比麦杰克还要早两年多
 
 推荐度：
+材料方面：海鸥Maritime SWS 玫瑰木版本＞玩易PD56或PD56C＞Eastman E6≈卡马A1≈Ayers  SJ-03C ＞Eastman AC322C＞泰勒214ce
+手感方面：卡马A1＞泰勒214ce＞Eastman AC322C＞Eastman E6≈玩易PD56或PD56C≈Ayers  SJ-03C≈海鸥Maritime SWS 玫瑰木版本
+
+推荐度：
 材料方面：雅依利YD-18＞Eastman E1＞卡马G1≈Eastman PCH3
 手感方面：卡马G1＞雅依利YD-18≈Eastman PCH3＞Eastman E1
 声音方面全单整体好于面单
