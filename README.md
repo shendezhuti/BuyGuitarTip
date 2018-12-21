@@ -6,7 +6,7 @@
 ![AC4](https://github.com/shendezhuti/guitar/blob/master/picture/Eastman/EastmanAC422.jpg?raw=true)
 * Eastman AC722C/822C    玫瑰木背侧的GA桶，这是小小最喜欢也最推荐的万用配置，如果你买琴拿不定注意，或者是对于桶形和材料处在迷茫状态，就照着这个去看，新人买琴第一把如果是玫瑰木会更好一些，因为后面如果换其他料，耳朵会更容易辨别
 
-![AC322C](https://github.com/shendezhuti/guitar/blob/master/picture/Eastman/eastmanAc322c.png?raw=true)
+![AC322C](https://github.com/shendezhuti/guitar/blob/master/picture/Eastman/Eastman%20AC322C.jpg?raw=true)
 * Eastman AC322C  珍贵的GA桶缺角  6000+元
 属于琴好货少的情况，没啥可说的，就是要的这个桶型，并且**一定要缺角**，否则没意义。Eastman也是国内最早做GA桶的，这个桶型有毒，用起来会上瘾的。因为D桶腰线较大，有时候抱时间长了会比较累，GA桶的小腰抱起来更舒服呀，吉他就好比女朋友呀，你喜欢粗腰的女朋友还是小腰的女朋友呀？Eastman天下第一！~女朋友天下第一！~小小出品，必属精品~嗯，好像走错片场了。
 
